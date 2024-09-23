@@ -6,4 +6,4 @@
 - lipariclaudio@outlook.it
 - #Sesso M | Data di nascita 19/09/1994 | Nazionalità Italiana 
 ---
- 	**ESPERIENZA PROFESSIONALE**
+**ESPERIENZA PROFESSIONALE**
