@@ -8,5 +8,11 @@
 ---
 **ESPERIENZA PROFESSIONALE**
 
-term
-: definition 
+Anno 2014
+: Operatore Call Center
+SICOM Srl, con sede legale in Via Veneto 25, 92016, Ribera (AG)
+▪	Letture Email
+▪	Stipulazione contratti
+▪	Riordino documentazione
+▪	Rapporti con clienti
+Attività o settore Telefonia mobile e fissa
